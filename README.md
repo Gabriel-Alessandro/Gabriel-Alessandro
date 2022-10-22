@@ -7,7 +7,6 @@
 
 - 📫 Entrar em contato comigo pelo e-mail: **gabriel.alessandro075@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
